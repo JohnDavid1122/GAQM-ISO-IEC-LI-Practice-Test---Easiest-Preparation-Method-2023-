@@ -1,0 +1,1 @@
+# GAQM-ISO-IEC-LI-Practice-Test---Easiest-Preparation-Method-2023-
